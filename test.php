@@ -1,1 +1,0 @@
-GUA GEEK AND HELLO GIT !!!!
